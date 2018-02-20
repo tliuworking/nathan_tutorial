@@ -1,2 +1,2 @@
 # nathan_tutorial
-Nathan
+Nathan Shit happens
